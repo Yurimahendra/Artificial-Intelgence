@@ -1,0 +1,2 @@
+# Artificial-Intelgence
+tugas kuliah
